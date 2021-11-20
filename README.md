@@ -1,0 +1,1 @@
+# funciones-alegebraicas-polinomiales-y-racionales-
